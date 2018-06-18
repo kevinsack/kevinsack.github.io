@@ -1,0 +1,5 @@
+Dear Marc, 
+
+Over the last few years our friendship has really grown into something beautiful. You are the turkleton to my vanilla bear. It would be an honour if you would be a groomsman at my upcoming wedding. 
+
+Kev
