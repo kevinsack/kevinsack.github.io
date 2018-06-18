@@ -1,6 +1,3 @@
----
-Title: Test!
----
 
 ## Welcome to GitHub Pages
 
