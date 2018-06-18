@@ -1,4 +1,3 @@
-mathjax:true
 
 this is about
 
